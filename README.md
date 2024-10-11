@@ -1,6 +1,4 @@
-![Mini_Project_page-0001](https://github.com/AmitKumar6k60/Strength_Exercise_Tracking_Model/assets/96468334/ffc8b6d3-bfab-4f18-9df8-bff93f2008a8)
-***
-![Mini_Project_page-0002](https://github.com/AmitKumar6k60/Strength_Exercise_Tracking_Model/assets/96468334/657f2f34-7117-4b6d-9479-6bdfb0ea583b) 
+![Mini_Project_page-0001](https://github.com/AmitKumar6k60/Strength_Exercise_Tracking_Model/assets/96468334/ffc8b6d3-bfab-4f18-9df8-bff93f2008a8) 
 ***
 ![Mini_Project_page-0003](https://github.com/AmitKumar6k60/Strength_Exercise_Tracking_Model/assets/96468334/30b36a0c-b995-49d4-ae04-db6fd9ec5778)
 ***
